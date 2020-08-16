@@ -1,2 +1,0 @@
-# cheater
-Cheater Game Indonesia
